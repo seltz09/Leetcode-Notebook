@@ -5,7 +5,7 @@ My goal is to be consistent and for this to be second nature
 
 “The kingdom of God is within you” (Luke 17:21, KJV)
 
-lets play the game.
+Lets play the game.
 
 🗂️ Structure
 
